@@ -5,7 +5,7 @@
 #### Não gosto de...💔
 Pessoas chatas,
 patetas,
-Gente que não gosta de animas (não são confiaveis😑),
+Gente que não gosta de animais (não são confiaveis😑),
 Salada,
 #### Gosto de...❤️
 Pão quentinho,
